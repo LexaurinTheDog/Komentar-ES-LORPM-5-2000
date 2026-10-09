@@ -16,7 +16,7 @@ El artículo 1 delimita el ámbito subjetivo y objetivo de la Ley y, con ello, l
 
 El apartado 2 reconoce a los menores sometidos a la Ley todos los derechos de la Constitución y del ordenamiento, con mención expresa de la Ley Orgánica 1/1996, de Protección Jurídica del Menor, y de la Convención sobre los Derechos del Niño de 1989. Se trata de una cláusula de garantía que opera como criterio interpretativo de todo el articulado: el procedimiento es, según la exposición de motivos, «formalmente penal pero materialmente sancionador-educativo», pero ello no autoriza rebajar las garantías del proceso penal.
 
-Las notas de la fuente documentan que la Ley Orgánica 8/2006 suprimió los apartados 2 y 4 originarios y renumeró el 3 como 2. Con ello desapareció del articulado la posibilidad, que la exposición de motivos todavía describe, de aplicar la Ley a los «jóvenes» de dieciocho a veintiún años; la exposición de motivos debe leerse, en este punto, como testimonio histórico y no como Derecho vigente.
+Las notas de la fuente documentan que la Ley Orgánica 8/2006 suprimió los apartados 2 y 4 originarios y renumeró el 3 como 2. El articulado vigente no contiene ya ninguna previsión sobre la aplicación de la Ley a los «jóvenes» de dieciocho a veintiún años que todavía describe la exposición de motivos; esta debe leerse, en ese punto, como testimonio histórico y no como Derecho vigente.
 
 #### TÍTULO I. Del ámbito de aplicación de la Ley
 
